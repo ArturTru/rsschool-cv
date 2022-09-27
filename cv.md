@@ -1,6 +1,7 @@
-Artur Trushynski
 
-Engineer (2years of experience)
+![](https://i.postimg.cc/N0Y8gY85/image.jpg)
+
+Artur Trushynski Engineer (2years of experience)
 =============================
 
 Contacts
