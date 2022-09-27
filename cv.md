@@ -20,7 +20,7 @@ Education
 
 -BSUIR 2018-2020 - information systems software
 
--BSPU 2012-2018 - teacher - artist
+-BSPU 2012-2018 - artist
 
 Experience
 ----------
